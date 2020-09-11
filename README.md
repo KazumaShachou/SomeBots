@@ -4,4 +4,4 @@
 
 Please don't use this for spam in Twitter, twitter can block your  account or delete.
 
-Enjoi!
+Enjoy!
